@@ -6,6 +6,7 @@ Kiitos että kuuntelit.
 
 - s-posti: david.gyllenberg at utu.fi
 - Twitter: [@DavidGyllenberg](https://twitter.com/DavidGyllenberg)
+- LinkedIn: [davidgyllenberg](www.linkedin.com/in/davidgyllenberg)
 
 ## Kirjallisuutta
 
